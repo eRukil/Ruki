@@ -1,2 +1,0 @@
-# Ruki
-zzz
